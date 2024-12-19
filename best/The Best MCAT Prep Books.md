@@ -18,7 +18,7 @@ The MCAT is a crucial exam for medical school admission, and choosing the right 
 <hr>
 
 
-## [MCAT Practice Test](https://serp.ly/amazon/MCAT+Practice+Test?i=stripbooks)
+## [MCAT Practice Test](https://serp.ly/@serpbooks/github/amazon/MCAT+Practice+Test?i=stripbooks)
 
 ![MCAT Practice Test | Image](https://books.google.com/books/publisher/content/images/frontcover/d2lTABRN3KoC?fife=w4000-h6000&source=gbs\_api)
 
@@ -58,7 +58,7 @@ Prepare for the Medical College Admission Test (MCAT) with the official practice
 <hr>
 
 
-## [Kaplan MCAT Flashcards](https://serp.ly/amazon/Kaplan+MCAT+Flashcards?i=stripbooks)
+## [Kaplan MCAT Flashcards](https://serp.ly/@serpbooks/github/amazon/Kaplan+MCAT+Flashcards?i=stripbooks)
 
 ![Kaplan MCAT Flashcards | Image](https://books.google.com/books/publisher/content/images/frontcover/7zl3ngEACAAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -89,7 +89,7 @@ Prepare for the 2015 MCAT with Kaplan's comprehensive flashcard collection cover
 <hr>
 
 
-## [Make 'em Laugh!](https://serp.ly/amazon/Make+em+Laugh?i=stripbooks)
+## [Make 'em Laugh!](https://serp.ly/@serpbooks/github/amazon/Make+em+Laugh?i=stripbooks)
 
 ![Make 'em Laugh! | Image](https://books.google.com/books/publisher/content/images/frontcover/nwjJEAAAQBAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -125,7 +125,7 @@ Prepare for the 2015 MCAT with Kaplan's comprehensive flashcard collection cover
 <hr>
 
 
-## [MCAT Prep Course](https://serp.ly/amazon/MCAT+Prep+Course?i=stripbooks)
+## [MCAT Prep Course](https://serp.ly/@serpbooks/github/amazon/MCAT+Prep+Course?i=stripbooks)
 
 ![MCAT Prep Course | Image](https://books.google.com/books/publisher/content/images/frontcover/uVWkngEACAAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -154,7 +154,7 @@ Prepare for the Medical College Admission Test (MCAT) with the most comprehensiv
 <hr>
 
 
-## [MCAT Prep Course](https://serp.ly/amazon/MCAT+Prep+Course?i=stripbooks)
+## [MCAT Prep Course](https://serp.ly/@serpbooks/github/amazon/MCAT+Prep+Course?i=stripbooks)
 
 ![MCAT Prep Course | Image](https://books.google.com/books/publisher/content/images/frontcover/3ITfswEACAAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -186,7 +186,7 @@ Prepare for the MCAT with the most comprehensive resource available. This 1,162-
 <hr>
 
 
-## [MCAT Critical Analysis and Reasoning Skills Review, 2nd Edition](https://serp.ly/amazon/MCAT+Critical+Analysis+and+Reasoning+Skills+Review+2nd+Edition?i=stripbooks)
+## [MCAT Critical Analysis and Reasoning Skills Review, 2nd Edition](https://serp.ly/@serpbooks/github/amazon/MCAT+Critical+Analysis+and+Reasoning+Skills+Review+2nd+Edition?i=stripbooks)
 
 ![MCAT Critical Analysis and Reasoning Skills Review, 2nd Edition | Image](https://books.google.com/books/publisher/content/images/frontcover/FTE7DwAAQBAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -220,7 +220,7 @@ Prepare for the MCAT with the Princeton Review's updated guide, covering critica
 <hr>
 
 
-## [Official MCAT Flashcards](https://serp.ly/amazon/Official+MCAT+Flashcards?i=stripbooks)
+## [Official MCAT Flashcards](https://serp.ly/@serpbooks/github/amazon/Official+MCAT+Flashcards?i=stripbooks)
 
 <br>
 
@@ -248,7 +248,7 @@ Prepare for the MCAT with the official study guide that covers all six core subj
 <hr>
 
 
-## [MCAT Test Prep Physics Review--Exambusters Flash Cards--Workbook 3 of 3](https://serp.ly/amazon/MCAT+Test+Prep+Physics+ReviewExambusters+Flash+CardsWorkbook+3+of+3?i=stripbooks)
+## [MCAT Test Prep Physics Review--Exambusters Flash Cards--Workbook 3 of 3](https://serp.ly/@serpbooks/github/amazon/MCAT+Test+Prep+Physics+ReviewExambusters+Flash+CardsWorkbook+3+of+3?i=stripbooks)
 
 ![MCAT Test Prep Physics Review--Exambusters Flash Cards--Workbook 3 of 3 | Image](https://books.google.com/books/publisher/content/images/frontcover/F2gRCgAAQBAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -284,7 +284,7 @@ Prepare for the MCAT with the comprehensive "MCAT Test Prep Physics Review" flas
 <hr>
 
 
-## [MCAT 528](https://serp.ly/amazon/MCAT+528?i=stripbooks)
+## [MCAT 528](https://serp.ly/@serpbooks/github/amazon/MCAT+528?i=stripbooks)
 
 ![MCAT 528 | Image](https://books.google.com/books/publisher/content/images/frontcover/W7mJDAAAQBAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -320,7 +320,7 @@ MCAT 528: Advanced Prep for Advanced Students is the meticulously updated third 
 <hr>
 
 
-## [MCAT Complete 7-book Subject Review 2018-2019](https://serp.ly/amazon/MCAT+Complete+7book+Subject+Review+20182019?i=stripbooks)
+## [MCAT Complete 7-book Subject Review 2018-2019](https://serp.ly/@serpbooks/github/amazon/MCAT+Complete+7book+Subject+Review+20182019?i=stripbooks)
 
 *Online + Book*
 
@@ -352,7 +352,7 @@ Prepare for your MCAT with the most important biochemistry concepts presented in
 <hr>
 
 
-## [Aamc the Official Guide to the McAt(r) Exam, Fifth Edition](https://serp.ly/amazon/Aamc+the+Official+Guide+to+the+McAtr+Exam+Fifth+Edition?i=stripbooks)
+## [Aamc the Official Guide to the McAt(r) Exam, Fifth Edition](https://serp.ly/@serpbooks/github/amazon/Aamc+the+Official+Guide+to+the+McAtr+Exam+Fifth+Edition?i=stripbooks)
 
 ![Aamc the Official Guide to the McAt(r) Exam, Fifth Edition | Image](https://books.google.com/books/publisher/content/images/frontcover/X\_SltAEACAAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -386,7 +386,7 @@ The Official Guide to the MCAT(R) Exam is the definitive resource for medical sc
 <hr>
 
 
-## [MCAT Prep Book](https://serp.ly/amazon/MCAT+Prep+Book?i=stripbooks)
+## [MCAT Prep Book](https://serp.ly/@serpbooks/github/amazon/MCAT+Prep+Book?i=stripbooks)
 
 ![MCAT Prep Book | Image](https://books.google.com/books/publisher/content/images/frontcover/mrBozgEACAAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -418,7 +418,7 @@ Prepare for the Medical College Admission Test (MCAT) with Mometrix's comprehens
 <hr>
 
 
-## [MCAT 528 Advanced Prep 2019-2020](https://serp.ly/amazon/MCAT+528+Advanced+Prep+20192020?i=stripbooks)
+## [MCAT 528 Advanced Prep 2019-2020](https://serp.ly/@serpbooks/github/amazon/MCAT+528+Advanced+Prep+20192020?i=stripbooks)
 
 ![MCAT 528 Advanced Prep 2019-2020 | Image](https://books.google.com/books/publisher/content/images/frontcover/3rbqyQEACAAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -451,7 +451,7 @@ Prepare for the MCAT with the latest Kaplan guide, covering everything from bioc
 <hr>
 
 
-## [MCAT Workout, 2nd Edition](https://serp.ly/amazon/MCAT+Workout+2nd+Edition?i=stripbooks)
+## [MCAT Workout, 2nd Edition](https://serp.ly/@serpbooks/github/amazon/MCAT+Workout+2nd+Edition?i=stripbooks)
 
 ![MCAT Workout, 2nd Edition | Image](https://books.google.com/books/publisher/content/images/frontcover/ci17DwAAQBAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -487,7 +487,7 @@ The Princeton Review's MCAT workout book prepares you for the exam with over 725
 <hr>
 
 
-## [Avatar: The Last Airbender-Imbalance Part One](https://serp.ly/amazon/Avatar+The+Last+AirbenderImbalance+Part+One?i=stripbooks)
+## [Avatar: The Last Airbender-Imbalance Part One](https://serp.ly/@serpbooks/github/amazon/Avatar+The+Last+AirbenderImbalance+Part+One?i=stripbooks)
 
 ![Avatar: The Last Airbender-Imbalance Part One | Image](https://books.google.com/books/publisher/content/images/frontcover/Gi17DwAAQBAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -521,7 +521,7 @@ When Team Avatar returns to Earthen Fire Industries, they find a boom town grapp
 <hr>
 
 
-## [7 Full-Length MCAT Practice Tests: 5 in the Book and 2 Online](https://serp.ly/amazon/7+FullLength+MCAT+Practice+Tests+5+in+the+Book+and+2+Online?i=stripbooks)
+## [7 Full-Length MCAT Practice Tests: 5 in the Book and 2 Online](https://serp.ly/@serpbooks/github/amazon/7+FullLength+MCAT+Practice+Tests+5+in+the+Book+and+2+Online?i=stripbooks)
 
 ![7 Full-Length MCAT Practice Tests: 5 in the Book and 2 Online | Image](https://books.google.com/books/publisher/content/images/frontcover/S21nvQEACAAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -554,7 +554,7 @@ Prepare for the Medical College Admissions Test (MCAT) with this comprehensive r
 <hr>
 
 
-## [MCAT Prep Books 2020-2021: MCAT Study Guide 2020 & 2021 and Practice Test Questions for the Medical College Admission Test [Includes Detailed Ans](https://serp.ly/amazon/MCAT+Prep+Books+20202021+MCAT+Study+Guide+2020++2021+and+Practice+Test+Questions+for+the+Medical+College+Admission+Test+Includes+Detailed+Ans?i=stripbooks)
+## [MCAT Prep Books 2020-2021: MCAT Study Guide 2020 & 2021 and Practice Test Questions for the Medical College Admission Test [Includes Detailed Ans](https://serp.ly/@serpbooks/github/amazon/MCAT+Prep+Books+20202021+MCAT+Study+Guide+2020++2021+and+Practice+Test+Questions+for+the+Medical+College+Admission+Test+Includes+Detailed+Ans?i=stripbooks)
 
 ![MCAT Prep Books 2020-2021: MCAT Study Guide 2020 & 2021 and Practice Test Questions for the Medical College Admission Test [Includes Detailed Ans | Image](https://books.google.com/books/publisher/content/images/frontcover/n8LCzAEACAAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -588,7 +588,7 @@ Prepare for the MCAT with the comprehensive study guide that covers all exam top
 <hr>
 
 
-## [Score Higher on the UCAT](https://serp.ly/amazon/Score+Higher+on+the+UCAT?i=stripbooks)
+## [Score Higher on the UCAT](https://serp.ly/@serpbooks/github/amazon/Score+Higher+on+the+UCAT?i=stripbooks)
 
 ![Score Higher on the UCAT | Image](https://books.google.com/books/publisher/content/images/frontcover/vdDVDwAAQBAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -624,7 +624,7 @@ Your comprehensive guide to acing the UCAT, featuring 1,500 practice questions, 
 <hr>
 
 
-## [Sterling Test Prep MCAT Practice Tests](https://serp.ly/amazon/Sterling+Test+Prep+MCAT+Practice+Tests?i=stripbooks)
+## [Sterling Test Prep MCAT Practice Tests](https://serp.ly/@serpbooks/github/amazon/Sterling+Test+Prep+MCAT+Practice+Tests?i=stripbooks)
 
 ![Sterling Test Prep MCAT Practice Tests | Image](https://books.google.com/books/publisher/content/images/frontcover/TjDFxgEACAAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -658,7 +658,7 @@ Prepare for the MCAT with the experts at Sterling Test Prep, offering 8 comprehe
 <hr>
 
 
-## [Jules vs. the Ocean](https://serp.ly/amazon/Jules+vs+the+Ocean?i=stripbooks)
+## [Jules vs. the Ocean](https://serp.ly/@serpbooks/github/amazon/Jules+vs+the+Ocean?i=stripbooks)
 
 ![Jules vs. the Ocean | Image](https://books.google.com/books/publisher/content/images/frontcover/owy2DwAAQBAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -692,7 +692,7 @@ From the creator of Not Quite Narwhal comes a charming story about a young girl 
 <hr>
 
 
-## [MCAT Complete 7-Book Subject Review 2021-2022](https://serp.ly/amazon/MCAT+Complete+7Book+Subject+Review+20212022?i=stripbooks)
+## [MCAT Complete 7-Book Subject Review 2021-2022](https://serp.ly/@serpbooks/github/amazon/MCAT+Complete+7Book+Subject+Review+20212022?i=stripbooks)
 
 ![MCAT Complete 7-Book Subject Review 2021-2022 | Image](https://books.google.com/books/publisher/content/images/frontcover/7F\_sDwAAQBAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -728,7 +728,7 @@ Prepare for the MCAT with Kaplan's comprehensive 7-book review series, including
 <hr>
 
 
-## [MCAT Prep Books 2021-2022](https://serp.ly/amazon/MCAT+Prep+Books+20212022?i=stripbooks)
+## [MCAT Prep Books 2021-2022](https://serp.ly/@serpbooks/github/amazon/MCAT+Prep+Books+20212022?i=stripbooks)
 
 ![MCAT Prep Books 2021-2022 | Image](https://books.google.com/books/publisher/content/images/frontcover/hY69zQEACAAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -762,7 +762,7 @@ Prepare for the MCAT with the experts at Test Prep Books, who've crafted this co
 <hr>
 
 
-## [Mask](https://serp.ly/amazon/Mask?i=stripbooks)
+## [Mask](https://serp.ly/@serpbooks/github/amazon/Mask?i=stripbooks)
 
 ![Mask | Image](https://books.google.com/books/publisher/content/images/frontcover/nQy2DwAAQBAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -796,7 +796,7 @@ In this second book of the Infinity Trinity series, three young superheroes join
 <hr>
 
 
-## [MCAT 528 Advanced Prep 2021–2022](https://serp.ly/amazon/MCAT+528+Advanced+Prep+20212022?i=stripbooks)
+## [MCAT 528 Advanced Prep 2021–2022](https://serp.ly/@serpbooks/github/amazon/MCAT+528+Advanced+Prep+20212022?i=stripbooks)
 
 ![MCAT 528 Advanced Prep 2021–2022 | Image](https://books.google.com/books/publisher/content/images/frontcover/DgsBEAAAQBAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -832,7 +832,7 @@ Prepare for the MCAT with Kaplan's comprehensive guide, featuring 500+ questions
 <hr>
 
 
-## [MCAT Organic Chemistry Review 2022-2023](https://serp.ly/amazon/MCAT+Organic+Chemistry+Review+20222023?i=stripbooks)
+## [MCAT Organic Chemistry Review 2022-2023](https://serp.ly/@serpbooks/github/amazon/MCAT+Organic+Chemistry+Review+20222023?i=stripbooks)
 
 ![MCAT Organic Chemistry Review 2022-2023 | Image](https://books.google.com/books/publisher/content/images/frontcover/QYIsEAAAQBAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -868,7 +868,7 @@ Prepare for the MCAT organic chemistry section with Kaplan's comprehensive revie
 <hr>
 
 
-## [MCAT Prep Books 2022-2023](https://serp.ly/amazon/MCAT+Prep+Books+20222023?i=stripbooks)
+## [MCAT Prep Books 2022-2023](https://serp.ly/@serpbooks/github/amazon/MCAT+Prep+Books+20222023?i=stripbooks)
 
 ![MCAT Prep Books 2022-2023 | Image](https://books.google.com/books/publisher/content/images/frontcover/HDu-zgEACAAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -902,7 +902,7 @@ Prepare for the MCAT with the comprehensive 6th edition study guide that covers 
 <hr>
 
 
-## [MCAT Critical Analysis and Reasoning Skills Review 2023-2024](https://serp.ly/amazon/MCAT+Critical+Analysis+and+Reasoning+Skills+Review+20232024?i=stripbooks)
+## [MCAT Critical Analysis and Reasoning Skills Review 2023-2024](https://serp.ly/@serpbooks/github/amazon/MCAT+Critical+Analysis+and+Reasoning+Skills+Review+20232024?i=stripbooks)
 
 ![MCAT Critical Analysis and Reasoning Skills Review 2023-2024 | Image](https://books.google.com/books/publisher/content/images/frontcover/XslzEAAAQBAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -938,7 +938,7 @@ The updated Kaplan MCAT review covers essential analytical and reasoning skills.
 <hr>
 
 
-## [MCAT General Chemistry Review 2023-2024](https://serp.ly/amazon/MCAT+General+Chemistry+Review+20232024?i=stripbooks)
+## [MCAT General Chemistry Review 2023-2024](https://serp.ly/@serpbooks/github/amazon/MCAT+General+Chemistry+Review+20232024?i=stripbooks)
 
 ![MCAT General Chemistry Review 2023-2024 | Image](https://books.google.com/books/publisher/content/images/frontcover/XAJJEAAAQBAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -974,7 +974,7 @@ Prepare for the MCAT with Kaplan's comprehensive chemistry guide, covering every
 <hr>
 
 
-## [MCAT Biochemistry Review 2023-2024](https://serp.ly/amazon/MCAT+Biochemistry+Review+20232024?i=stripbooks)
+## [MCAT Biochemistry Review 2023-2024](https://serp.ly/@serpbooks/github/amazon/MCAT+Biochemistry+Review+20232024?i=stripbooks)
 
 ![MCAT Biochemistry Review 2023-2024 | Image](https://books.google.com/books/publisher/content/images/frontcover/6wFJEAAAQBAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -1010,7 +1010,7 @@ Prepare for the MCAT with Kaplan's comprehensive biochemistry review, featuring 
 <hr>
 
 
-## [MCAT Physics and Math Review 2023-2024](https://serp.ly/amazon/MCAT+Physics+and+Math+Review+20232024?i=stripbooks)
+## [MCAT Physics and Math Review 2023-2024](https://serp.ly/@serpbooks/github/amazon/MCAT+Physics+and+Math+Review+20232024?i=stripbooks)
 
 ![MCAT Physics and Math Review 2023-2024 | Image](https://books.google.com/books/publisher/content/images/frontcover/rAJJEAAAQBAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -1046,7 +1046,7 @@ Prepare for the MCAT with Kaplan's comprehensive review, covering essential phys
 <hr>
 
 
-## [MCAT Behavioral Sciences Review 2023-2024](https://serp.ly/amazon/MCAT+Behavioral+Sciences+Review+20232024?i=stripbooks)
+## [MCAT Behavioral Sciences Review 2023-2024](https://serp.ly/@serpbooks/github/amazon/MCAT+Behavioral+Sciences+Review+20232024?i=stripbooks)
 
 ![MCAT Behavioral Sciences Review 2023-2024 | Image](https://books.google.com/books/publisher/content/images/frontcover/xAFJEAAAQBAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -1082,7 +1082,7 @@ Prepare for the MCAT Behavioral Sciences section with Kaplan's comprehensive rev
 <hr>
 
 
-## [MCAT Biology Review 2023-2024](https://serp.ly/amazon/MCAT+Biology+Review+20232024?i=stripbooks)
+## [MCAT Biology Review 2023-2024](https://serp.ly/@serpbooks/github/amazon/MCAT+Biology+Review+20232024?i=stripbooks)
 
 ![MCAT Biology Review 2023-2024 | Image](https://books.google.com/books/publisher/content/images/frontcover/EgJJEAAAQBAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -1118,7 +1118,7 @@ Prepare for the MCAT with Kaplan's comprehensive biology review, featuring over 
 <hr>
 
 
-## [MCAT 528 Advanced Prep 2023-2024](https://serp.ly/amazon/MCAT+528+Advanced+Prep+20232024?i=stripbooks)
+## [MCAT 528 Advanced Prep 2023-2024](https://serp.ly/@serpbooks/github/amazon/MCAT+528+Advanced+Prep+20232024?i=stripbooks)
 
 ![MCAT 528 Advanced Prep 2023-2024 | Image](https://books.google.com/books/publisher/content/images/frontcover/9UhdEAAAQBAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -1154,7 +1154,7 @@ Prepare for the MCAT with Kaplan's comprehensive guide, featuring expert instruc
 <hr>
 
 
-## [MCAT General Chemistry Review 2024-2025](https://serp.ly/amazon/MCAT+General+Chemistry+Review+20242025?i=stripbooks)
+## [MCAT General Chemistry Review 2024-2025](https://serp.ly/@serpbooks/github/amazon/MCAT+General+Chemistry+Review+20242025?i=stripbooks)
 
 ![MCAT General Chemistry Review 2024-2025 | Image](https://books.google.com/books/publisher/content/images/frontcover/mx-UEAAAQBAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -1190,7 +1190,7 @@ Prepare for the MCAT with Kaplan's comprehensive general chemistry review, featu
 <hr>
 
 
-## [MCAT Biology Review 2024-2025](https://serp.ly/amazon/MCAT+Biology+Review+20242025?i=stripbooks)
+## [MCAT Biology Review 2024-2025](https://serp.ly/@serpbooks/github/amazon/MCAT+Biology+Review+20242025?i=stripbooks)
 
 ![MCAT Biology Review 2024-2025 | Image](https://books.google.com/books/publisher/content/images/frontcover/lx-UEAAAQBAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -1226,7 +1226,7 @@ Prepare for the MCAT with the comprehensive Kaplan Biology Review, featuring det
 <hr>
 
 
-## [MCAT Prep Books 2024-2025 - 650+ Practice Test Questions, MCAT Secrets Study Guide and Exam Review with Step-By-Step Video Tutorials](https://serp.ly/amazon/MCAT+Prep+Books+20242025++650+Practice+Test+Questions+MCAT+Secrets+Study+Guide+and+Exam+Review+with+StepByStep+Video+Tutorials?i=stripbooks)
+## [MCAT Prep Books 2024-2025 - 650+ Practice Test Questions, MCAT Secrets Study Guide and Exam Review with Step-By-Step Video Tutorials](https://serp.ly/@serpbooks/github/amazon/MCAT+Prep+Books+20242025++650+Practice+Test+Questions+MCAT+Secrets+Study+Guide+and+Exam+Review+with+StepByStep+Video+Tutorials?i=stripbooks)
 
 ![MCAT Prep Books 2024-2025 - 650+ Practice Test Questions, MCAT Secrets Study Guide and Exam Review with Step-By-Step Video Tutorials | Image](https://books.google.com/books/publisher/content/images/frontcover/bClW0AEACAAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -1255,7 +1255,7 @@ Prepare for the Medical College Admission Test (MCAT) with Mometrix's comprehens
 <hr>
 
 
-## [Princeton Review MCAT Prep, 2024-2025](https://serp.ly/amazon/Princeton+Review+MCAT+Prep+20242025?i=stripbooks)
+## [Princeton Review MCAT Prep, 2024-2025](https://serp.ly/@serpbooks/github/amazon/Princeton+Review+MCAT+Prep+20242025?i=stripbooks)
 
 ![Princeton Review MCAT Prep, 2024-2025 | Image](https://books.google.com/books/publisher/content/images/frontcover/q51Z0AEACAAJ?fife=w4000-h6000&source=gbs\_api)
 
@@ -1288,7 +1288,7 @@ Prepare for the MCAT with the Princeton Review's comprehensive resource, coverin
 <hr>
 
 
-## [MCAT Physics and Math Review 2025-2026](https://serp.ly/amazon/MCAT+Physics+and+Math+Review+20252026?i=stripbooks)
+## [MCAT Physics and Math Review 2025-2026](https://serp.ly/@serpbooks/github/amazon/MCAT+Physics+and+Math+Review+20252026?i=stripbooks)
 
 ![MCAT Physics and Math Review 2025-2026 | Image](https://books.google.com/books/publisher/content/images/frontcover/tqrgEAAAQBAJ?fife=w4000-h6000&source=gbs\_api)
 
